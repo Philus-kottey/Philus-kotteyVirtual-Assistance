@@ -71,5 +71,6 @@ Kingship Knowledge Academy, Akatsi-Volta Region | *2015 – 2018*
 ---
 
 ## **References**  
-Available upon request  
+Naa Odofoley Nortye, Lawyer 
+Faustina Naa-ebeng, Office Manager
 # Philus-kotteyVirtual-Assistance
